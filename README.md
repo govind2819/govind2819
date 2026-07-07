@@ -1,4 +1,4 @@
-# Hi, I'm Govind 👋
+# Hi, I'm Govind 
 
 ## About Me
 
